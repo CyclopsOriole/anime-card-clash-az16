@@ -1,4 +1,4 @@
-
+anime card clash Script vip offers the most advanced anime card clash Script, with anti-ban and infinite resources. Perfect for dominating any match.
 
 
 
